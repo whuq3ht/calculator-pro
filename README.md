@@ -58,4 +58,4 @@ GitHub: @whuq3ht
 
 Web: atcklabs.eu
 
-Instagram: @haktan0zturk```
+Instagram: @haktan0zturk
